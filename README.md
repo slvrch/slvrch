@@ -1,3 +1,3 @@
-# Hallo semua! 👋
+# Hallo semua!
 
 Perkenalkan nama saya **Silvia Rachmawati**.
